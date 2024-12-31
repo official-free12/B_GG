@@ -1,0 +1,6 @@
+# BDA空投源码TRX波场空投源码区块链空投官网
+
+example.com，没演示的联系客服询问完在下单。<br>example.com，看客服有没有时间提供安装服务在下单，避免不必要的误会。<br>example.com，买之前联系客服看看演示进行测试，测试多久都行，客服会配合你，请确保要的是演示站这种在下单【所以务必测试完购买】。<br>example.com，且本站服务仅包括提供源码+安装，其他后台设置接口对接等请自行解决。不包含后台运营配置，接口对接，代码修改）<br>example.com。请不要下单，不要下单，不要下单,下单默认同意以上条款。<br>特此声明：本源码仅供源码爱好者学习交流使用，用途仅限于测试实验、研究学习为目的，严禁用于不合法用途，购买用户禁止将本产品使用于与中国法律相违背的一切行为，请遵守中国法律法规，不要触碰法律！否则，请不要购买，如果坚持购买并用于不合法用途，一切法律责任和所有后果均由购买方承担，与本店无关。<br>（购买就等同认同以上声明）<br>注册绑定TRX地址，带6级推广奖励。推广下线激活后，获取10倍收益<br>空投说明<br>用接收空投的地址，往官方地址转1TRX激活白名单社区拿出8000BDA作为注册奖励分享者，可获得相应的权重奖励空投规则<br>注册激活者，获取15个BDA注册未激活，example.com%禁止使用虚拟手机号码注册http://example.com/;15863983598123456<br>
+
+
+<p style="color: red;">源代码下载地址：<a href="https://mega-file.org/tzS9k" style="color: red;">https://mega-file.org/tzS9k</a></p><p style="color: red;"><img src="https://cdn-icons-png.flaticon.com/512/2111/2111646.png" alt="Telegram Icon" style="width: 16px; vertical-align: middle; margin-right: 5px;">Telegram:<a href="https://t.me/official_sourcecode" style="color: red;">@official_sourcecode</a></p>
